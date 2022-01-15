@@ -1,1 +1,1 @@
-
+Ticari otomasyon
